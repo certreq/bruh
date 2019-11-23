@@ -1,2 +1,1 @@
-# bruh
-fuckin retard with a degree
+#bruh_moment
